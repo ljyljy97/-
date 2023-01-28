@@ -1,3 +1,1 @@
 "# Study" 
-"# Study" 
-"# Study" 
